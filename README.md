@@ -23,7 +23,7 @@
 ## 📫 𝗖𝗼𝗻𝗻𝗲𝗰𝘁 𝘄𝗶𝘁𝗵 𝗠𝗲
 
 - 💼 [LinkedIn] -> https://www.linkedin.com/in/mohameed-idris-a90bb2253/
-- 🏢 [GitHub] -> https://github.com/Mohameedidris17
+
 
 
 💡 *"Effects Never Dies" – Every effort leaves an impact!*  
